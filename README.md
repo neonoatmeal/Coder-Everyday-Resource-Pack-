@@ -5,10 +5,14 @@ This Resource Pack comes with ethical hacking and unethical eBooks and other thi
 
 Here Is the Link To My pack 
 
+If you Download it You Get Everything 
+
 http://www.mediafire.com/file/hkf88p015w74cdu/Programming+Hacking+Resources.zip/file
 
 
 You Dont Want To Download it I can Make That Easy For You 
+
+If You Clone Into It You Only Get Half As Im Still Uploading Files etc:smile:
 
 git clone https://github.com/codereveryday/Coder-Everyday-Resource-Pack-
 
