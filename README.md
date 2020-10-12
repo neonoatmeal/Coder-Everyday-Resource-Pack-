@@ -13,7 +13,7 @@ https://github.com/codereveryday/JustGotEasy
 
 Looking for Testers 
 
-Here Is A Demo 
+Here Is A Demo Of A Ebook 
 
 
 <p align="center">
