@@ -5,7 +5,7 @@ This Resource Pack comes with ethical hacking and unethical eBooks and other thi
 
 Here Is the Link To My pack 
 
-Link may change as i may add new stuff to the pack 
+
 
 Also Go Check out My Program JGE Its a Lazy Script Alt 
 
