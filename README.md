@@ -11,13 +11,8 @@ https://github.com/codereveryday/JustGotEasy
 
 Looking for Testers 
 
+Here Is A Demo 
 
-
-
-<p align="center">
- <a href="https://ibb.co/9VbRKLF"><img src="https://i.ibb.co/YycvnMz/external-content-duckduckgo-com.jpg"
-                                       
-Here Is a Demo 
 
 <p align="center">
 <a href="https://ibb.co/Svdym0F"><img src="https://i.ibb.co/f0nFNtj/Ghostinthe-Wires-By-Kevin-Mitnick-001.jpg" width="500" height="600"  alt="external-content-duckduckgo-com" border="0"></a>
