@@ -12,11 +12,9 @@ https://github.com/codereveryday/JustGotEasy
 Looking for Testers 
 
 
-
-
 <p align="center">
+ 
 <a href="https://ibb.co/qxZHv2b"><img src="https://i.ibb.co/PtS2dVB/external-content-duckduckgo-com.jpg" alt="external-content-duckduckgo-com" border="0"></a>
-
 
 Here Is a Demo 
 
@@ -33,5 +31,4 @@ Here Is a Demo
   
    <p align="center">
 <a href="https://ibb.co/7WnXJw1"><img src="https://i.ibb.co/2tvy7Dk/Ghostinthe-Wires-By-Kevin-Mitnick-011.jpg" alt="external-content-duckduckgo-com" border="0"></a>
-  
   
