@@ -21,7 +21,7 @@ Linux,Mac,Windows
 
 # Come Join My Server 
 
-If You Got Questions Or Just Chill And Talk About Tech 
+If You Got Questions Come Join My server  Just Chill And Talk About Tech Or Anything!!!!
 
 https://discord.gg/ded3sz7
 
