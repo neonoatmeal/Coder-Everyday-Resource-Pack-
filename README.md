@@ -1,5 +1,7 @@
 # Coder-Everyday-Resource-Pack-
-This Resource Pack comes with ethical hacking and unethical eBooks and other things such as programming Anarchism to Survival books to lock picking it also comes with a collection of Kevin mitnick books most of the eBook are the hacking for dummies , programming for dummies etc it also comes with books like how to build your network aka networking and Linux books and more I hope you enjoy!!!!
+This Resource Pack comes with ethical hacking and unethical eBooks and other things such as programming Anarchism to Survival books to lock picking it also comes with a collection of Kevin mitnick books most of the eBook are the hacking for dummies , programming for dummies etc it also comes with books like how to build your network aka networking and Linux books and more Im also working on program for my resource simlar to the pentesing bible cli api  I hope you enjoy!!!!
+
+
 
 Here Is the Link to My pack 
 
