@@ -19,7 +19,9 @@ git clone https://github.com/codereveryday/Coder-Everyday-Resource-Pack-
 Linux,Mac,Windows 
 
 
-#Discord Come Join My Server If You Got Questions Or Just Chill And Talk About Tech 
+# Dicord ?? Come Join My Server 
+
+If You Got Questions Or Just Chill And Talk About Tech 
 
 https://discord.gg/ded3sz7
 
