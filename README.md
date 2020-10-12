@@ -10,7 +10,6 @@ Also Go Check out My Program JGE Its a Lazy Script Alt
 https://github.com/codereveryday/JustGotEasy
 
 Looking for Testers 
-<br>
 
 Here Is A Demo 
 
