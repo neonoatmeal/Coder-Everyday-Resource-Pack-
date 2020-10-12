@@ -5,7 +5,7 @@ Here Is the Link to My pack
 
 Link may change as i may add new stuff to the pack 
 
-Also Go Check out My Program JGE Its Lazy Script Alt 
+Also Go Check out My Program JGE Its a Lazy Script Alt 
 
 https://github.com/codereveryday/JustGotEasy
 
