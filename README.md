@@ -72,3 +72,80 @@ reasonable excuse you might have given your mother about why you needed $15? I h
 punch. But that was only Step One. How was I going to get books of blank transfers?
 Well, where did the buses get washed? I walked over to the nearby bus depot, spotted a big Dumpster in the area where the buses were
 cleaned, pulled myself up, and looked in.</p>
+
+<p>Jackpot!
+I stuffed my pockets with partially used books of transfers—my first of what would be many, many acts of what came to be called "Dumpster-
+diving."
+My memory has always been way better than average and I managed to memorize the bus schedules for most of the San Femando Valley. I
+started to roam by bus everywhere the bus system covered—Los Angeles County, Riverside County, San Bemardino County. I enjoyed seeing all
+those different places, taking in the world around me.
+In my travels, I made friends with a kid named Richard Williams, who was doing the same thing, but with two pretty major differences. For one thing,
+his free-roaming travels were legal because, as the son of a bus driver, Richard rode for free. The second aspect that separated us (initially,
+anyway) was our difference in weight: Richard was obese and wanted to stop at Jack in the Box for a Super Taco five or six times a day. Almost at
+once I adopted his eating habits and began growing around the middle.
+It wasn't long before a pigtailed blond girl on the school bus told me, "You're kinda cute, but you're fat. You oughta lose some weight."
+Did I take her sharp but unquestionably constructive advice to heart? Nope.
+Did I get into trouble for Dumpster-diving for those bus transfers and riding for free? Again, no. My mom thought it was clever, my dad thought it
+showed initiative, and bus drivers who knew I was punching my own transfers thought it was a big laugh. It was as though everyone who knew what I
+was up to was giving me attaboys.
+In fact, I didn't need other people's praise for my misdeeds to lead me into more trouble. Who would have thought that a little shopping trip
+could provide a lesson that would set my life on a new course... in an unfortunate direction?</p>
+
+
+
+<p>VI.6th lal voe htat oy voe Mbittn vfzbqt nagye C poh aeovsn vojgav?
+E
+ven many Jewish families that aren't very religious want their sons to have a bar mitzvah, and I fell into that category. This includes standing up in
+front of the congregation and reading a passage from the Torah scroll—in Hebrew. Of course, Hebrew uses a completely different alphabet, with VJ
+, 2, and the like, so mastering the Torah portion can take months of study.
+I was signed up at a Hebrew school in Sherman Oaks but got booted for goofing off. Mom found a cantor to teach me one-on-one, so I couldn't
+get away with reading a technology book under the table. I managed to learn enough to get through the service and read my Torah passage aloud
+to the congregation with no more than the usual amount of stumbling, and without embarrassing myself.
+Afterward my parents chided me for mimicking the accent and gestures of the rabbi. But it was subconscious. I'd later learn that this is a very
+effective technique because people are attracted to others who are like themselves. So at a very early age, all unaware, I was already practicing
+what would come to be called "social engineering"—the casual or calculated manipulation of people to influence them to do things they would not
+ordinarily do. And convincing them without raising the least hint of suspicion.
+The typical shower of presents from relatives and from people who attended the reception after the bar mitzvah at the Odyssey Restaurant left
+me with gifts that included a number of U.S. Treasury bonds that came to a surprisingly handsome sum.
+I was an avid reader, with a particular focus that led me to a place called the Survival Bookstore in North Hollywood. It was small and in a seedy
+neighborhood and was run by a middle-aged, friendly blond lady who said I could call her by her first name. The place was like finding a pirate's
+treasure chest. My idols in those days were Bruce Lee, Houdini, and Jim Rockford, the cool private detective played by James Garner in The
+Rockford Files, who could pick locks, manipulate people, and assume a false identity in a matter of moments. I wanted to be able to do all the neat
+things Rockford could.
+The Survival Bookstore carried books describing how to do all those nifty Rockford things, and lots more besides. Starting at age thirteen, I
+spent many of my weekends there, all day long, studying one book after another—books like The Paper Trip by Barry Reid, on how to create a new
+identity by using a birth certificate of someone who had passed away.
+A book called The Big Brother Game, by Scott French, became my Bible because it was crammed with details on how to get hold of driving
+records, property records, credit reports, banking information, unlisted numbers, and even how to get information from police departments. (Much
+later, when French was writing a follow-up volume, he called to ask me if I would do a chapter on techniques for social-engineering the phone
+companies. At the time, my coauthor and I were writing our second book, The Att of Intrusion, and I was too busy for French's project, though
+amused by the coincidence, and flattered to be asked.)
+That bookstore was crammed with "underground" books that taught you things you weren't supposed to know—very appealing to me since I
+had always had this urge to take a bite of knowledge from the forbidden apple. I was soaking up the knowledge that would turn out to be invaluable
+almost two decades later, when I was on the run.
+The other item that interested me at the store besides their books was the lockpicking tools they offered for sale. I bought several different
+kinds. Remember the old joke that goes, "How do you get to Carnegie Hall? Practice, practice, practice"? That's what I did to master the art of
+lockpicking, sometimes going down to the area of tenant storage lockers in the garage of our apartment building, where I'd pick open some of the
+padlocks, swap them around, and lock them again. At the time I thought it was an amusing practical joke, though looking back, I'm sure it probably
+threw some people into angry fits and put them to a good deal of trouble, plus the expense of a new lock after they had managed to get the old one
+removed. Only funny, I guess, when you're a teenager.
+One day when I was about fourteen, I was out with my uncle Mitchell, who was a bright star of my life in those years. We swung by the
+Department of Motor Vehicles and found it packed with people. He left me to wait while he walked straight up to the counter—just like that, walking
+past everyone standing in line. The DMV clerk, a lady with a bored expression, looked up in surprise. He didn't wait for her to finish what she was
+doing with the man at the window but just started talking. He hadn't said more than a few words when the clerk nodded to him, signaled the other
+man to step aside, and took care of whatever it was Uncle Mitchell wanted. My uncle had some special talent with people.
+And I appeared to have it, too. It was my first conscious example of social engineering.
+How did people see me at Monroe High School? My teachers would have said that I was always doing unexpected things. When the other kids
+were fixing televisions in repair shop, I was following in Steve Jobs and Steve Wozniak's footsteps and building a blue box that would allow me
+to manipulate the phone network and even make free phone calls. I always brought my handheld ham radio to school and talked on it during lunch
+and recess.
+But one fellow student changed the course of my life. Steven Shalita was an arrogant guy who fancied himself as an undercover cop—his car
+was covered with radio antennas. He liked to show off the tricks he could do with the telephone, and he could do some amazing things. He
+demonstrated how he could have people call him without revealing his real phone number by using a phone company test circuit called a "loop-
+around"; he would call in on one of the loop's phone numbers while the other person was calling the loop's second phone number. The two callers
+would be magically connected. He could get the name and address assigned to any phone number, listed or not, by calling the phone company s
+Customer Name and Address (CNA) Bureau. With a single call, he got my mom's unlisted phone number. Wow! He could get the phone number
+and address of anyone, even a movie star with an unlisted number. It seemed like the folks at the phone company were just standing by to see what
+they could do to help him.
+I was fascinated, intrigued, and I instantly became his companion, eager to learn all those incredible tricks. But Steven was only interested in
+showing me what he could do, not in telling me howall of this worked, how he was able to use his social-engineering skills on the people he was</p>
