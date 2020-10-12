@@ -158,3 +158,14 @@ and address of anyone, even a movie star with an unlisted number. It seemed like
 they could do to help him.
 I was fascinated, intrigued, and I instantly became his companion, eager to learn all those incredible tricks. But Steven was only interested in
 showing me what he could do, not in telling me howall of this worked, how he was able to use his social-engineering skills on the people he was</p>
+
+
+
+
+# Wait You Want More Resources
+
+Well I Got You Bud!!!!
+
+# Links 
+
+
