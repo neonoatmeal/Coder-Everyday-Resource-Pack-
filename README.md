@@ -12,10 +12,12 @@ https://github.com/codereveryday/JustGotEasy
 Looking for Testers 
 
 
+
+
 <p align="center">
  
 <a href="https://ibb.co/qxZHv2b"><img src="https://i.ibb.co/PtS2dVB/external-content-duckduckgo-com.jpg" alt="external-content-duckduckgo-com" border="0"></a>
-
+</p>
 Here Is a Demo 
 
 <p align="center">
